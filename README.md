@@ -1,0 +1,1 @@
+# covidmexico.github.io
